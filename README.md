@@ -1,4 +1,4 @@
-![Marcus Tullius Cicero](https://upload.wikimedia.org/wikipedia/commons/8/8a/Bust_of_Cicero_%281st-cent._BC%29_-_Palazzo_Nuovo_-_Musei_Capitolini_-_Rome_2016.jpg)
+![Marcus Tullius Cicero](png-klev-club-912y-p-tsitseron-png-12.png "Marcus Tullius Cicero")
 
 # De finibus bonorum et malorum
 
